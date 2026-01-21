@@ -2,37 +2,36 @@
 
 <img src="https://i.pinimg.com/originals/4e/89/67/4e8967a7f8f78d9d7b3cc7e20c9a4c73.gif" width="200"/>
 
-# 🌸✨ 𝐇𝐢, 𝐈’𝐦 Heart! ✨🌸  
-## 🎮 𝐆𝐚𝐦𝐞𝐫 | 🎨 𝐒𝐭𝐮𝐝𝐞𝐧𝐭 𝐃𝐞𝐬𝐢𝐠𝐧𝐞𝐫 | 🐾 𝐂𝐚𝐭 & 𝐃𝐨𝐠 𝐋𝐨𝐯𝐞𝐫  
+# 🌸 Hi, I'm Heart! 🌸  
+## 🎀 Gamer | 🎨 Learning Design | 🐾 Cat & Dog Lover 🎀  
 
 </div>
 
 ---
 
-## 🎀✨ 𝐀𝐛𝐨𝐮𝐭 𝐌𝐞 ✨🎀  
-💗 𝐈’𝐦 𝐚 𝟒𝐭𝐡 𝐲𝐞𝐚𝐫 𝐬𝐭𝐮𝐝𝐞𝐧𝐭 𝐰𝐡𝐨 𝐥𝐨𝐯𝐞𝐬 𝐜𝐫𝐞𝐚𝐭𝐢𝐧𝐠 **𝐜𝐮𝐭𝐞 𝐚𝐧𝐝 𝐚𝐞𝐬𝐭𝐡𝐞𝐭𝐢𝐜 𝐝𝐞𝐬𝐢𝐠𝐧𝐬** 𝐟𝐨𝐫 𝐰𝐞𝐛𝐬𝐢𝐭𝐞𝐬 𝐚𝐧𝐝 𝐚𝐩𝐩𝐬 💕  
-🌱 𝐈’𝐦 𝐚𝐥𝐰𝐚𝐲𝐬 𝐥𝐞𝐚𝐫𝐧𝐢𝐧𝐠 𝐧𝐞𝐰 𝐝𝐞𝐬𝐢𝐠𝐧 𝐚𝐩𝐩𝐬 𝐭𝐨 𝐢𝐦𝐩𝐫𝐨𝐯𝐞 𝐦𝐲 𝐬𝐤𝐢𝐥𝐥𝐬 ✨  
+## 🎀 About Me  
+hi! i’m a 4th year student who loves creating cute and aesthetic designs for websites and apps 💕  
+i enjoy using figma and canva and learning new design tools to improve my creativity ✨  
 
-💖  
-🎮 𝐆𝐚𝐦𝐞𝐫 𝐚𝐭 𝐡𝐞𝐚𝐫𝐭  
-🎨 𝐋𝐨𝐯𝐞𝐬 𝐩𝐚𝐬𝐭𝐞𝐥 & 𝐜𝐮𝐭𝐞 𝐔𝐈  
-🐱 𝐂𝐚𝐭 & 𝐝𝐨𝐠 𝐥𝐨𝐯𝐞𝐫  
-🌸 𝐏𝐢𝐧𝐤 𝐢𝐬 𝐦𝐲 𝐯𝐢𝐛𝐞  
-
----
-
-## 💖✨ 𝐃𝐞𝐬𝐢𝐠𝐧 𝐓𝐨𝐨𝐥𝐬 ✨💖  
-🎀 𝐅𝐢𝐠𝐦𝐚  
-🎀 𝐂𝐚𝐧𝐯𝐚  
-🎀 𝐋𝐞𝐚𝐫𝐧𝐢𝐧𝐠 𝐦𝐨𝐫𝐞 𝐝𝐞𝐬𝐢𝐠𝐧 𝐚𝐩𝐩𝐬 𝐬𝐨𝐨𝐧 ✨  
+🎮 gamer at heart  
+🎨 loves pastel and cute ui  
+🐱 loves cats and dogs  
+🌸 pink is my vibe  
 
 ---
 
-## ✨🎀 𝐅𝐮𝐧 𝐅𝐚𝐜𝐭𝐬 🎀✨  
-💗 𝐂𝐚𝐧 𝐠𝐚𝐦𝐞 𝐟𝐨𝐫 𝐡𝐨𝐮𝐫𝐬  
-🐾 𝐋𝐨𝐯𝐞𝐬 𝐜𝐮𝐭𝐞 𝐚𝐧𝐢𝐦𝐚𝐥𝐬  
-🎨 𝐋𝐨𝐯𝐞𝐬 𝐬𝐨𝐟𝐭 𝐝𝐞𝐬𝐢𝐠𝐧𝐬  
-🌸 𝐋𝐨𝐯𝐞𝐬 𝐜𝐮𝐭𝐞 𝐚𝐞𝐬𝐭𝐡𝐞𝐭𝐢𝐜𝐬  
+## 💖 Design Tools  
+🌸 figma  
+🌸 canva  
+🌸 learning more design apps soon ✨  
+
+---
+
+## ✨ Fun Facts  
+🎀 loves cute aesthetics  
+🎮 can game for hours  
+🐾 animals make me happy  
+🎨 enjoys cozy soft designs  
 
 ---
 
@@ -40,6 +39,6 @@
 
 <img src="https://i.pinimg.com/originals/96/2e/7d/962e7d82f6d5c5dff9c6b4bbad63b7aa.gif" width="220"/>
 
-## 💌✨ 𝐂𝐫𝐞𝐚𝐭𝐞 𝐜𝐮𝐭𝐞 𝐭𝐡𝐢𝐧𝐠𝐬. 𝐋𝐞𝐚𝐫𝐧 𝐝𝐚𝐢𝐥𝐲. 𝐒𝐭𝐚𝐲 𝐡𝐚𝐩𝐩𝐲. 💕  
+### 💌 create new things. learn daily. stay happy. enjoy life. 💕
 
 </div>
