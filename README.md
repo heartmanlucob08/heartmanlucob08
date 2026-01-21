@@ -9,7 +9,7 @@
 
 ---
 
-## 🎀 About Me  
+# 🎀 About Me  
 hi! i’m a 4th year student who loves creating cute and aesthetic designs for websites and apps 💕  
 i enjoy using figma and canva and learning new design tools to improve my creativity ✨  
 
@@ -20,14 +20,14 @@ i enjoy using figma and canva and learning new design tools to improve my creati
 
 ---
 
-## 💖 Design Tools  
+# 💖 Design Tools  
 🌸 figma  
 🌸 canva  
 🌸 learning more design apps soon ✨  
 
 ---
 
-## ✨ Fun Facts  
+# ✨ Fun Facts  
 🎀 loves cute aesthetics  
 🎮 can game for hours  
 🐾 animals make me happy  
@@ -39,6 +39,6 @@ i enjoy using figma and canva and learning new design tools to improve my creati
 
 <img src="https://i.pinimg.com/originals/96/2e/7d/962e7d82f6d5c5dff9c6b4bbad63b7aa.gif" width="220"/>
 
-### 💌 create new things. learn daily. stay happy. enjoy life. 💕
+# 💌 create new things. learn daily. stay happy. enjoy life. 💕
 
 </div>
