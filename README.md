@@ -1,6 +1,6 @@
 <div align="center">
 
-🌷 **hello, i’m <your name>** 🌷  
+🌷 **hello, i’m heart!** 🌷  
 *welcome to my little corner of github* ☁️💕
 
 </div>
